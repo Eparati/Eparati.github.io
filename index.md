@@ -10,3 +10,4 @@ Key Features:
     Ideal for outdoor enthusiasts who demand quality and reliability
     A true standout in the water bottle market thanks to its unique, substantial feel
 <img src="self-heat-cabin-snow.jpg">
+Disclaimer: Images are generated using AI.
